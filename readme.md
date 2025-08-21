@@ -39,6 +39,8 @@
     - 紫雲殿仙祖廟
     - 關子嶺雞籠山
     - 九龍山
+    - 2024-036：雞九凍縱走（雞籠山、九龍山、大凍山）
+      - https://hiking.biji.co/index.php?q=review&act=info&review_id=34186 
     - 枕頭山步道
       - 枕頭山的登山口，我覺得最方便的就是從碧雲寺後方的「碧雲火泉步道」
       - https://hiking.biji.co/index.php?q=review&act=info&review_id=15041
