@@ -1,3 +1,13 @@
+## 茗茶
+- [山霖峰茗茶](https://www.tea-cher.com.tw/)
+  - 電話：049-2630988
+  - LINE ID：@lpe0855l 
+  - 地址：南投縣竹山鎮雲林里育英路49號
+  - cindy20070312@gmail.com
+  - 國際標準白瓷評鑑杯組  https://www.tea-cher.com.tw/productsdetails.aspx?ID=61
+  - https://www.tea-cher.com.tw/productsdetails.aspx?ID=63
+- https://www.youtube.com/@%E9%98%BF%E7%AB%A3-tea/shorts
+
 ## 行事曆
 - 20250821 嘉義二日遊
 - 20250828 [關子嶺二日遊](關子嶺二日遊.md)
